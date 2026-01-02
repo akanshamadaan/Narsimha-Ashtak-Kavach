@@ -61,7 +61,8 @@ It is especially helpful for people who feel fear or negativity without knowing 
 **Why People Choose Narasimha Kavach**
 People choose Narasimha Kavach because it is connected to a powerful story of protection. It is not about fighting fear. It is about feeling safe while facing it.
 It offers comfort, courage, and a sense of support that many people seek in difficult times.
-![Uploading Untitled design (39).png…]()
+<img width="1250" height="720" alt="Untitled design (39)" src="https://github.com/user-attachments/assets/b5a773f2-b47b-48ab-8230-aecf7666ff76" />
+
 
 
 
