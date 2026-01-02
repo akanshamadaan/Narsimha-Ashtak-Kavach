@@ -64,6 +64,7 @@ It offers comfort, courage, and a sense of support that many people seek in diff
 ![Uploading Untitled design (39).png…]()
 
 
+
 **A Gentle Step Toward Peace and Protection**
 Life will always bring challenges. Fear may come, and anxiety may rise. But protection gives strength to move forward without breaking.
 The Narasimha Ashtak Kavach (Pure Silver Tabeej) is for those who want to feel protected, calm, and strong from inside.
